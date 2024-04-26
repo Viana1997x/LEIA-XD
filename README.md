@@ -1,5 +1,3 @@
-#LEIA XD
-
 Perfil pra fazer umas coisas ai
 
 Unica rede social que eu uso:
